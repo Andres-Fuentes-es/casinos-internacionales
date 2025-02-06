@@ -127,7 +127,7 @@ Tiempo de depósito: Instantáneo
 
 Tiempo de retiro: No disponible en la mayoría de los casos
 
-<h2>❓ Preguntas Frecuentes sobre Casinos Internacionales</h2>
+<h2>❓ Preguntas frecuentes sobre casinos internacionales</h2>
 
 <b>¿Es legal jugar en casinos online internacionales?</b>
 
