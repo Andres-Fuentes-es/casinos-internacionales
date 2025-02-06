@@ -5,10 +5,15 @@ Es importante verificar que el casino internacional en cuestión tenga una licen
 
 <h2>Mejores casinos internacionales</h2>
 <h3>1. Bassbet</h3>
+100% hasta 500€ + 200 tiradas gratis
 <h3>2. Wonaco</h3>
+100% hasta 500€ + 200 tiradas gratis
 <h3>3. Spinanga</h3>
+100% hasta 500€ + 200 tiradas gratis
 <h3>4. Locowin</h3>
+100% hasta 350€ + 100 tiradas gratis
 <h3>5. Casinia</h3>
+100% hasta 500€ + 200 tiradas gratis
 
 <h2>Restricciones de la DGOJ en España</h2>
 
