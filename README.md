@@ -5,27 +5,27 @@ Es importante verificar que el casino internacional en cuestión tenga una licen
 
 <h2>Mejores casinos internacionales</h2>
 <h3>1. Bassbet</h3>
-<b>Bono de 100% hasta 500€ + 200 tiradas gratis</b>
+💰 <b>Bono de 100% hasta 500€ + 200 tiradas gratis</b> 🎰
 
 Obtenlo aquí ➜ https://tinyurl.com/2wwwp5vu
 
 <h3>2. Wonaco</h3>
-<b>Bono de 100% hasta 500€ + 200 tiradas gratis</b>
+💰 <b>Bono de 100% hasta 500€ + 200 tiradas gratis</b> 🎰
 
 Obtenlo aquí ➜ https://tinyurl.com/3jjvc793
 
 <h3>3. Spinanga</h3>
-<b>Bono de 100% hasta 500€ + 200 tiradas gratis</b>
+💰 <b>Bono de 100% hasta 500€ + 200 tiradas gratis</b>
 
 Obtenlo aquí ➜ https://tinyurl.com/yrw9kffw
 
 <h3>4. Locowin</h3>
-<b>Bono de 100% hasta 350€ + 100 tiradas gratis</b>
+💰 <b>Bono de 100% hasta 350€ + 100 tiradas gratis</b> 🎰
 
 Obtenlo aquí ➜ https://tinyurl.com/3mp8jnfc
 
 <h3>5. Casinia</h3>
-<b>Bono de 100% hasta 500€ + 200 tiradas gratis</b>
+💰 <b>Bono de 100% hasta 500€ + 200 tiradas gratis</b> 🎰
 
 Obtenlo aquí ➜ https://tinyurl.com/58kjaumc
 
