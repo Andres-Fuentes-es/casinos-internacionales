@@ -155,5 +155,8 @@ Un casino es seguro si cuenta con una licencia válida emitida por autoridades r
 
 <b>¿Qué métodos de pago puedo usar en casinos internacionales?</b>
 
-Los casinos internacionales aceptan tarjetas de crédito y débito (Visa, Mastercard), monederos electrónicos (PayPal, Skrill, Neteller), transferencias bancarias y criptomonedas (Bitcoin, Ethereum, Litecoin). La disponibilidad depende del casino y del país desde donde juegues. Para retiros rápidos, los monederos electrónicos y criptomonedas son las mejores opciones
+Los casinos internacionales aceptan tarjetas de crédito y débito (Visa, Mastercard), monederos electrónicos (PayPal, Skrill, Neteller), transferencias bancarias y criptomonedas (Bitcoin, Ethereum, Litecoin). La disponibilidad depende del casino y del país desde donde juegues. Para retiros rápidos, los monederos electrónicos y criptomonedas son las mejores opciones.
 
+<b>¿Cuál es el mejor casino online internacional?</b>
+
+El mejor casino internacional ahora mismo es Bassbet, al ofrecer una buena plataforma, diseño divertido y un buen bono de bienvenida del 100% hasta 500€, además de 200 tiradas gratis. Puedes conseguir el bono directamente a través de este enlace ➜ https://tinyurl.com/2wwwp5vu
