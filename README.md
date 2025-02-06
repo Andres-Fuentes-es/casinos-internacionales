@@ -1,7 +1,14 @@
-<h1>Mejores casinos online internacionales</h1>
+<h1>Casinos online internacionales</h1>
 
 Los casinos online internacionales suelen operar bajo licencias emitidas por entidades de jurisdicción extranjera, como Malta (MGA), Curazao, Gibraltar o la Isla de Man. Estas licencias permiten que los casinos ofrezcan servicios a jugadores de diferentes países, aunque no siempre están reconocidas por todas las legislaciones locales.
 Es importante verificar que el casino internacional en cuestión tenga una licencia válida y regulada para garantizar la seguridad de los fondos y la transparencia en los juegos.
+
+<h2>Mejores casinos internacionales</h2>
+<h3>1. Bassbet</h3>
+<h3>2. Wonaco</h3>
+<h3>3. Spinanga</h3>
+<h3>4. Locowin</h3>
+<h3>5. Casinia</h3>
 
 <h2>Restricciones de la DGOJ en España</h2>
 
