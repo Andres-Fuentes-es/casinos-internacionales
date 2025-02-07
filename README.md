@@ -7,27 +7,27 @@ Es importante verificar que el casino internacional en cuestión tenga una licen
 <h3>1. Bassbet</h3>
 💰 <b>Bono de 100% hasta 500€ + 200 tiradas gratis</b> 🎰
 
-Obtenlo aquí ➜ https://tinyurl.com/2wwwp5vu
+[¡Regoge el bono de Bassbet!](https://tinyurl.com/mpx6est7)
 
 <h3>2. Wonaco</h3>
 💰 <b>Bono de 100% hasta 500€ + 200 tiradas gratis</b> 🎰
 
-Obtenlo aquí ➜ https://tinyurl.com/3jjvc793
+[¡Recoge el bono de Wonaco!](https://tinyurl.com/v3k68kb6)
 
 <h3>3. Spinanga</h3>
 💰 <b>Bono de 100% hasta 500€ + 200 tiradas gratis</b> 🎰
 
-Obtenlo aquí ➜ https://tinyurl.com/yrw9kffw
+[¡Recoge el bono de Spinanga!](https://tinyurl.com/mpfepszz)
 
-<h3>4. Locowin</h3>
-💰 <b>Bono de 100% hasta 350€ + 100 tiradas gratis</b> 🎰
+<h3>4. Genieplay</h3>
+💰 <b>Bono de 100% hasta 500€ + 200 tiradas gratis</b> 🎰
 
-Obtenlo aquí ➜ https://tinyurl.com/3mp8jnfc
+[¡Recoge el bono de Genieplay!](https://tinyurl.com/yz56rcb9)
 
 <h3>5. Casinia</h3>
 💰 <b>Bono de 100% hasta 500€ + 200 tiradas gratis</b> 🎰
 
-Obtenlo aquí ➜ https://tinyurl.com/58kjaumc
+[¡Recoge el bono de Casinia!](https://tinyurl.com/kbrxwfby)
 
        
 <h2>Restricciones de la DGOJ en España</h2>
