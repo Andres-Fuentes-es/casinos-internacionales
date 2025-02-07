@@ -22,12 +22,14 @@ Es importante verificar que el casino internacional en cuestión tenga una licen
 <h3>4. Genieplay</h3>
 💰 <b>Bono de 100% hasta 500€ + 200 tiradas gratis</b> 🎰
 
-[¡Recoge el bono de Genieplay!](https://tinyurl.com/yz56rcb9)
+[¡Recoge el bono de Genieplay!](https://tinyurl.com/kbrxwfby)
+
 
 <h3>5. Casinia</h3>
 💰 <b>Bono de 100% hasta 500€ + 200 tiradas gratis</b> 🎰
 
-[¡Recoge el bono de Casinia!](https://tinyurl.com/kbrxwfby)
+[¡Recoge el bono de Casinia!](https://tinyurl.com/yz56rcb9)
+
 
        
 <h2>Restricciones de la DGOJ en España</h2>
